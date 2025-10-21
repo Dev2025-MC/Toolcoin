@@ -1,7 +1,4 @@
 <html>
-  <head>
-    <title>Toolcoin 2.0</title>
-  </head>
   <body background="images(4).jpg">
   <h1>Toolcoin</h1>
   <p>toolcoin is a app That Make Every add-on,Texture pack,World,and skins Free</p>
