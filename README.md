@@ -14,7 +14,7 @@
 <p>if you Done that over to the zarchiver storage/emulated/0/download/toolcoin here Is The File save</p>
 <h1>Download</h1>
 <p>Here is the Download</p>
-<a href="ToolCoin.apk"download>Download APK</a>
+<a href="https://www.mediafire.com/file/peajpu24wxh188n/toolcoin.apk/file"download>Download APK</a>
 <p>Connect in whatsapp 896-8579-977 :3</p>
 <p>If you wanna be friend in roblox then this the link :3</p>
 <a href="https://www.roblox.com/share?code=1db53eae1e69fe4780b57f19ae388f19&type=Profile&source=ProfileShare&stamp=1757743352086" download>Connect in roblox :3</a><p>if you wanna subscribe us in youtube :3</p>
